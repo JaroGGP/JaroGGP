@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JaroGGP
+- 👋 Hi, I’m JaroDDJL (Dziedzic Lutni)
 - 👀 I’m interested in ... alternatywki
 - 🌱 I’m currently learning ... about alternatywki
 - 💞️ I’m looking to collaborate with ... alternatywki
